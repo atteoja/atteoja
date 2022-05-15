@@ -1,0 +1,6 @@
+- Hello World, I’m Atte!
+- I am an IT student at Tampere University, focusing on machine learning and software.
+- This is a fresh account and I am currently trying to become friends with GitHub! :D
+- 
+- 📫 IG: @atteoja
+- 
