@@ -3,4 +3,3 @@
 - This is a fresh account and I am currently trying to become friends with GitHub! :D
 - 
 - 📫 IG: @atteoja
-- 
